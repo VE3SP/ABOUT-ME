@@ -12,11 +12,11 @@ ACCOMPLISHMENTS ::   (PAID)
 https://ve3sp.blogspot.com/p/accomplishments-in-amateur-ham-radio.html
 
 
-ANDRE VE3SP.COM
+ANDRE VE3SP.COM 
 
 Social Links :  www.linktr.ee/VE3SP
 
 VE3SP on QRZ :  https://ve3sp.blogspot.com/p/ve3sp-on-qrz.html
 
-
+
 .
